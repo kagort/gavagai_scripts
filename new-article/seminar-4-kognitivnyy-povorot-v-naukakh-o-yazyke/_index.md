@@ -15,4 +15,4 @@ title: Семинар 4. Когнитивный поворот в науках �
 
 4. Скребцова Т. Г. \[Когнитивная лингвистика: классические теории, новые подходы\](<https://disk.yandex.ru/i/TulFKx22aFv04w>)
 
-5. L. Talmy \[Toward a Cognitive Semantics. (vol.1, chapter 1.  )\](<https://disk.yandex.ru/i/uRpgy0Bu-5YfVg> ))
+5. L. Talmy \[Toward a Cognitive Semantics. (vol.1, chapter 1.  )\](<https://disk.yandex.ru/i/uRpgy0Bu-5YfVg> )
